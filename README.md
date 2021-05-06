@@ -2080,3 +2080,1248 @@ setting
 
 • When it comes to pay, link to performance
 
+
+
+Leadership, power, and
+
+persuasion
+
+Leading Organizations
+
+Cristiano Guarana, Ph.D.
+
+Erik Gonzalez-Mulé, Ph.D.
+
+
+
+
+
+• Individual decision
+
+making
+
+• Motivation
+
+• Goal setting
+
+• Team decision making
+
+• Trust, justice, and ethics
+
+• **Leadership, power and**
+
+**persuasion**
+
+Leading
+
+through
+
+decisions
+
+Leading
+
+through
+
+motivation
+
+Leading
+
+through
+
+change
+
+Leading
+
+through
+
+differences
+
+• Organizational structure
+
+• Organizational culture
+
+• Changing organization
+
+and stress
+
+• Individual differences
+
+• Team composition
+
+• Multicultural teams
+
+
+
+
+
+Plan for this session
+
+• What is leadership?
+
+• Leadership styles
+
+• Leadership pyramid
+
+• Power
+
+• Persuasion
+
+
+
+
+
+What is leadership?
+
+
+
+
+
+What is leadership?
+
+Leadership
+
+Ability to influence other to
+
+achieve a common goal.
+
+Connection
+
+Management
+
+Use of authority inherent in
+
+designated formal rank to
+
+obtain compliance from
+
+organizational members.
+
+Incentive and control
+
+
+
+
+
+Leadership emergence vs. leadership effectiveness
+
+• Leadership Emergence:
+
+• Leadership Effectiveness:
+
+The degree to which the leader’s actions
+
+result in:
+
+Who becomes a leader in the
+
+first p
+
+\1) the achievement of the unit’s goals,
+
+\2) the continued commitment of the
+
+unit’s employees, and
+
+\3) the development of mutual trust,
+
+respect, and obligation in leader-
+
+follower relationships.
+
+
+
+
+
+The leadership pyramid
+
+
+
+
+
+Leadership domains
+
+
+
+
+
+Core focus of the domains
+
+
+
+
+
+Consequences of effective leadership
+
+**STEWARDSHIP**
+
+**HIGH**
+
+**ASPIRATION**
+
+**INITIATIVE**
+
+**CREDIBILITY**
+
+**TRUST**
+
+**COMMUNITY**
+
+
+
+
+
+Personal leadership
+
+
+
+
+
+Personal leadership
+
+• Develop and exhibit an authentic personal
+
+leadership style based on your own values and
+
+personality.
+
+• Create and convey strategic insight and vision.
+
+• Demonstrate courage and passion about what you
+
+do.
+
+
+
+
+
+Understanding your values
+
+• What is your core ideology?
+
+• You want to lead…but where…and how?
+
+• First, you must “lead yourself”
+
+• Think carefully about what your values are.
+
+• Understand what trade-offs you are willing to make.
+
+• Understand your values form the basis for your leadership style
+
+
+
+
+
+Developing your vision
+
+What is your envisioned future?
+
+How will you leverage your core ideology to creatively develop your vision?
+
+• Think hard and deep about what you want to accomplish… Develop your
+
+personal expertise… Demonstrate competence… Be smart.
+
+• Take the time to look as far into the future as you can… Clarify opportunities
+
+and threats… Be wise.
+
+• Look for new solutions and new approaches… To lead you must go first…Be
+
+creative.
+
+• Draw on your personal passion for your vision… Be enthusiastic.
+
+
+
+
+
+Courage: a key to personal leadership
+
+• Courage — placing oneself at risk as much as, or even
+
+more than, you are asking others to do — is one of
+
+the most effective ways to communicate your values,
+
+vision, and style.
+
+Courage tests you as a leader.
+
+
+
+
+
+Effective personal
+
+leadership yields
+
+**CREDIBILITY**
+
+
+
+
+
+Relational leadership
+
+
+
+
+
+Relational leadership
+
+
+
+
+
+Relational leadership
+
+• Foster interpersonal emotional connection.
+
+• Show concern, understanding, and respect for
+
+others.
+
+• Be seen as fair.
+
+
+
+Leaders and followers: a relationship
+
+• You should seek to form apersonal connection with each person you
+
+“lead” (direct reports, peers, and superiors).
+
+• In small groups, this poses a task, but not a problem. You must
+
+put in the time and devote enough attention to make an
+
+impression, to create a link.
+
+• What can you do? Relational listening
+
+• For large groups, this raises the challenge of building a virtual
+
+personal relationship.
+
+• What can you do? Story telling
+
+
+
+
+
+Follower’s dilemma
+
+• The “follower’s dilemma” is:
+
+“How do we know he/she will lead us where ~~we~~ want to go,
+
+not just where ~~he/she~~ wants to go?”
+
+Personal leadership:
+
+• **Dedication**
+
+Relational leadership:
+
+• **Concern, respect,** and **fairness**.
+
+
+
+
+
+Relational listening
+
+\1.
+
+\2.
+
+Seek the other person’s views.
+
+Show you are understanding (and check your understanding) by
+
+paraphrasing what the other told you and asking if there is more.
+
+\3.
+
+\4.
+
+Show that you recognize the importance of the other’s views by
+
+validating the other’s reactions within his or her understanding of
+
+things. Agreement is not necessary!
+
+Show that you are concerned with the other person’s welfare by
+
+empathizing.
+
+A Potential Fifth Step…
+
+If the issue involves a problem with the leader, a fifth step might be either to
+
+promise action or to explain why action will not take place. Only at this point
+
+do you bring your own views into play.
+
+
+
+
+
+Relational leadership and story-telling
+
+• People remember stories more than facts.
+
+• Statistics – 5 - 10% retention
+
+• Statistics and story – 25 – 30% retention
+
+• Story – 65 – 75% retention
+
+• Stories not only capture emotion, but they can convey your
+
+emotional connection (which is critical to relational leadership)
+
+
+
+
+
+Fairness
+
+• Fairness is more than just fair pay (distributive justice), it is:
+
+• Treating people with dignity
+
+• Playing by the rules; especially as they apply to you
+
+• Giving people a chance to express their views, even if they run counter to
+
+your own
+
+• Showing that you consider what you hear
+
+• Taking the time and effort to explain why things are happening in a
+
+particular way
+
+• Generally, fairness is showing people that you will make every effort to treat
+
+them decently
+
+Think about procedural justice!!!
+
+
+
+
+
+Effective relational leadership
+
+yields
+
+**TRUST**
+
+
+
+
+
+Contextual leadership
+
+
+
+
+
+Contextual leadership
+
+
+
+
+
+Contextual leadership
+
+• Create a sense of identity (pride and belonging)
+
+• Focus and simplify to build a sense of coherence
+
+• Enhance coordination through clarity of roles and
+
+functions. Remember coordination loss!
+
+
+
+
+
+Contextual leadership
+
+• The job of a contextual leader is to help follower
+
+sense-making
+
+• who we are
+
+• why we do things the way we do
+
+• how all the pieces fit together – including where
+
+I fit and where others fit
+
+
+
+
+
+Effective contextual
+
+leadership yields
+
+**COMMUNITY**
+
+
+
+
+
+Inspirational leadership
+
+
+
+
+
+Inspirational leadership
+
+
+
+
+
+Inspirational leadership
+
+• Create a climate of excellence
+
+• Encourage innovation
+
+• Raise enthusiasm and optimism
+
+
+
+
+
+Inspirational leadership rests on a foundation of
+
+personal and relational leadership
+
+**Why?**
+
+
+
+
+
+Inspiring the will to achieve
+
+• Inspiration comes from a sense of personal value
+
+• Make people believe and feel that they are respected and are
+
+worthy of that respect.
+
+• Make people see and feel that their work and
+
+efforts are important.
+
+• Convey the value of striving to achieve
+
+• Highlight the urgency of the overall effort.
+
+• Demand persistence and creativity in achieving
+
+the difficult.
+
+• Do not accept less than the best from each person.
+
+
+
+
+
+Encourage innovation
+
+• Separate idea generation from idea evaluation
+
+• Institute a three-stage process:
+
+• Guided Research: include research that questions standard
+
+operating assumptions
+
+• Idea generation: make space for “crazy” ideas (individual task)
+
+• Idea evaluation: considered evaluation, with an eye to new
+
+solutions (group task)
+
+
+
+
+
+Raise enthusiasm
+
+• Engender enthusiasm for tasks and goals
+
+• Recall the importance of BHAG’s.
+
+• Convey a sense of urgency.
+
+• Promote a “can do” attitude.
+
+• Create a resilient determination to succeed
+
+• Celebrate each milestone as bringing your people closer to
+
+the ultimate goal.
+
+• Analyze defeat with a determination to learn and to
+
+succeed.
+
+
+
+
+
+Effective inspirational
+
+leadership yields
+
+
+
+
+
+Supportive leadership
+
+
+
+
+
+Supportive leadership
+
+
+
+
+
+Supportive leadership
+
+• Foster a sense of individual and team “efficacy”
+
+• Promote accountability, but avoid blaming
+
+• Protect your team
+
+
+
+
+
+Supportive leadership rests on a
+
+foundation of relational and contextual leadership.
+
+**Why?**
+
+
+
+
+
+Building efficacy
+
+• Give honest and consistent feedback; don’t forget to point out
+
+successes, even in the context of failure.
+
+• Encourage mentoring and role-modeling.
+
+• Encourage and reward your most competent and successful
+
+people for sharing their skills and knowledge.
+
+• Show your pride in the accomplishments of your people.
+
+
+
+
+
+Building confidence in the collective
+
+• Promote accountability, avoid blaming
+
+• Singling out team members for blame is ~~poison~~ for team spirit
+
+and identity.
+
+• Everyone will wonder: will I be next if I make a mistake?
+
+• Helping vs. blaming
+
+• Everyone should understand what the team can do, and what it
+
+can’t.
+
+• Knowing limits also helps us know how to succeed
+
+
+
+
+
+Effective supportive leadership
+
+yields
+
+
+
+
+
+Responsible leadership
+
+
+
+
+
+Responsible leadership
+
+
+
+
+
+Responsible leadership
+
+• Encourage integrative and balanced action.
+
+• Model ethical behavior.
+
+• Foster feelings of responsibility to others inside
+
+and outside the firm.
+
+
+
+Ethical responsibilities of leadership
+
+As a leader, you have theresponsibility to consider
+
+whether what you ask people to do is ethically correct.
+
+• Ground your leadership direction in values:
+
+• Your own,
+
+• Your people’s,
+
+• And also broader ethical principles.
+
+• Actively confront the consequences:
+
+• Of your actions and your organization’s actions toward all
+
+stakeholders; and
+
+• Accept responsibility for the consequences
+
+• Personally set the standard
+
+
+
+
+
+An ethical tool
+
+• Do your actions and decisions meet the tests of:
+
+• Dignity – Are you treating people with the dignity
+
+everyone is entitled to?
+
+• Benevolence – Are you doing more good than harm?
+
+• Equity – Are you focusing your consideration only on the
+
+powerful?
+
+
+
+
+
+Stewardship
+
+• A steward is a caretaker
+
+• Protects organization and the community(s) in which it resides
+
+• Accepts personal responsibility and fosters same feelings in others
+
+• A steward is a role model
+
+• Ethical example
+
+• Balances the long-term best interests of the organization and its
+
+stakeholders ahead of self-interest
+
+• A steward is a motivator
+
+• Motivates individuals to work for the greater good
+
+**Stewardship is about your Legacy**
+
+
+
+
+
+Effective responsible leadership fosters
+
+
+
+
+
+Dark Side of Leadership
+
+
+
+
+
+Dark Side of Leadership
+
+• A lot of names for essentially
+
+the same thing
+
+• Abusive supervision
+
+• Toxic leadership
+
+• Destructive leadership
+
+• Expose you to some of the
+
+research and theory of bad
+
+leadership
+
+
+
+
+
+Abusive supervision
+
+• “subordinates' perceptions of the extent to which supervisors engage
+
+in the sustained display of hostile verbal and nonverbal behaviors,
+
+excluding physical contact” (Tepper, 2000)
+
+• Affects 13.6% of United States (US) workers, resulting in an estimated
+
+US $23 billion cost to business
+
+
+
+
+
+Abusive supervision
+
+• derogatory names
+
+• intimidation
+
+• threats of job loss
+
+• explosive and angry outbursts
+
+• withholding necessary information
+
+• taking credit for a subordinate’s success
+
+• humiliating or ridiculing a subordinate in front of others
+
+
+
+
+
+Effects on employees
+
+• Attitudes toward boss (r = -.57)
+
+• There is no grudging respect
+
+• Job satisfaction (r = -.34)
+
+• They hate their job
+
+• Turnover intention (r = .31)
+
+• They’re trying to leave
+
+• CWB (r = .38)
+
+• But, first they’re going to steal and break a bunch of stuff
+
+
+
+
+
+Why are bad bosses bad?
+
+• Person approach: Dark Triad, lack moral compass
+
+• Personality clashes
+
+• Systems approach: lack of oversight, period of rapid change
+
+
+
+
+
+Contingency approach to toxic leadership
+
+
+
+
+
+\1. Destructive leadership
+
+• Charisma
+
+• Outgoing, engaging, socially adept
+
+• Need for power
+
+• Ambitious, focused, energetic
+
+• Narcissism
+
+• Inflated view of self, ignore/discount negative feedback
+
+
+
+
+
+\1. Destructive leadership
+
+• Negative life themes
+
+• Significant challenges or traumas in formative years
+
+• Weaves a narrative of overcoming hardships
+
+• Ideology of hate
+
+• Rally support against a real or perceived threat
+
+• Creates/exaggerates the threat to justify power
+
+• Godwin’s Law: "As an online discussion grows longer, the probability
+
+of a comparison involving Hitler approaches 1.”
+
+
+
+
+
+\2. Susceptible followers
+
+• **~~Conformers~~** passively permit
+
+• Unmet needs
+
+• Poor self-evaluation
+
+• Immaturity
+
+• **~~Colluders~~** actively assist
+
+• Personal ambitions
+
+• Congruent values/beliefs
+
+• Insecurity
+
+
+
+
+
+\3. Conducive Environments
+
+• Instability
+
+• Period of change/uncertainty
+
+• Need for quick decisive action
+
+• Perceived threat
+
+• Internal or external
+
+• Absence of checks and balances
+
+• Emerging organization
+
+• Poor institutional oversight
+
+
+
+
+
+Power
+
+
+
+
+
+Definitions
+
+• **Power**
+
+• The ability to get someone to do something you want done.
+
+• The ability to make things happen in the way you want.
+
+• **Social Power**
+
+• The ability to influence another in a social relation.
+
+• Earned through our relationships with others
+
+• **Dependency**
+
+• One person or group relies on another person or group to get
+
+what they want or need.
+
+
+
+
+
+Fixed versus expanding pie perspectives
+
+• **Zero Sum Game** – one person’s gain is equal to another person’s loss
+
+(“I win, you lose”).
+
+• **Empowerment** – involves sharing power, information, and rewards
+
+with employees to make decisions and solve problems in their work.
+
+
+
+
+
+Two primary sources of power
+
+•**Position**
+
+• Derives from a person’s position in the organization
+
+•**Personal**
+
+• Resides in the individual
+
+• Portable
+
+• Independent of that individual’s position
+
+
+
+
+
+Possibly a 3rd source of power
+
+• **Reciprocal Alliances**
+
+• Represents the power
+
+arising from alliances
+
+with others developed
+
+through reciprocity (the
+
+trade of power or
+
+favors for mutual gain).
+
+• Can work well when
+
+you have equals with
+
+differing skills and
+
+resources
+
+
+
+
+
+Bases of Power
+
+
+
+
+
+**Legitimate**
+
+**Reward**
+
+**Coercive Information**
+
+**Expert**
+
+**Connection Referent**
+
+
+
+
+
+Persuasion Tactics
+
+The illusion of rationality
+
+
+
+
+
+Following Social Norms
+
+• We are social animals
+
+• “When people are free to do as they please, they usually imitate each other.”
+
+-Eric Hoffer
+
+• People tend to look to others, especially a majority of others, to
+
+decide how to behave in and perceive situations
+
+• Any messages that show that many (or most) others are doing or
+
+perceiving a certain way will influence one’s actions, choices and
+
+perceptions
+
+
+
+
+
+Following Social Norms
+
+• An infomercial copywriter (Colleen Szot) changed the “call to action”
+
+from:
+
+• “Operators are standing by; please call now.”; to
+
+• “If operators are busy, please call again.”
+
+• Sales increased significantly; shattering a 20-year sales record.
+
+
+
+
+
+Following norms
+
+• When a message was left saying
+
+it was good for the environment
+
+to re-use towels, a certain
+
+percentage of people re-used
+
+(~7%)
+
+• When the message was changed
+
+to suggest that most people re-
+
+used towels in that hotel, re-use
+
+went up 26%; when it was more
+
+specific (most people who stayed
+
+in that particular room re-used)
+
+re-use increased 33%
+
+
+
+
+
+Takeaway
+
+• Frame the message as “everyone else is doing it”
+
+• Be careful
+
+• Women’s Voices, during the 2004 presidential campaign, sent out 1 million
+
+postcards with this message: “Four years ago, 22 million single women did
+
+not vote.”
+
+• Result?
+
+Households who had had **above**
+
+**average usage reduced their**
+
+**consumption by 5.7**%;
+
+**Those whose usage was below**
+
+**average increased their**
+
+**consumption by 8.6%**
+
+
+
+
+
+What is social mimicry?
+
+• Motor mimicry
+
+• Facial mimicry
+
+• Emotional contagion
+
+• Reciprocal altruism
+
+• Want people to complete your survey? Mail them a dollar
+
+
+
+
+
+Social mimicry
+
+• Increase people’s willingness to engage in helping
+
+behavior if you closely follow their communication style
+
+
+
+
+
+Social mimicry
+
+• You probably already mirror people naturally, but you might be able
+
+to improve your skill at gaining rapport if you attend to people more
+
+closely. Listen to and watch them as they speak and interact with you.
+
+
+
+
+
+Recency Bias
+
+• Whatever the most recent or last part of an experience is tends to
+
+color and strongly influence our overall memory or sense of that
+
+experience.
+
+
