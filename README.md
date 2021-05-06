@@ -3325,3 +3325,297 @@ color and strongly influence our overall memory or sense of that
 experience.
 
 
+
+Z596 Leading Organizations:
+
+Where Teams Go Right
+
+Tim Baldwin
+
+1
+
+
+
+
+
+Many Well-Known Reasons Teams
+
+Go Wrong (even among smart and well-
+
+intentioned people)
+
+• Lack of shared performance objectives
+
+• Membership
+
+• Size
+
+• Unenforced Norms – Rogue members
+
+• Information Processing Biases
+
+
+
+
+
+Where Teams Go Right: Four
+
+ACTIONABLE DISCIPLINES of
+
+High Performance Teams
+
+• Focus on Defining Success in Outcomes – Not
+
+just Activites
+
+• Small Size
+
+• Committed Members / Mutual Accountability
+
+• Enforced Norms (Rules of the Road)
+
+
+
+
+
+Outcome vs Activity Goals
+
+Activity Goals:
+
+Develop a plan
+
+Re-engineer the licensing process
+
+Gather data
+
+Outcome Goals:
+
+Increase revenue
+
+Cut costs
+
+Decrease employee turnover
+
+4
+
+
+
+
+
+Membership
+
+• Obsess over it
+
+• Use sub groups to manage size
+
+• Jeff Bezosa and his two pizza rule
+
+5
+
+
+
+
+
+Enforced Norms
+
+• Establish Rules of the Road
+
+• Enforce or abandon team
+
+(examples - Sports Teams, Rotary Club)
+
+
+
+
+
+Note What is *~~Missing~~* From
+
+Those Actionable Disciplines
+
+• Communication
+
+• Commitment
+
+• Trust
+
+(These remain are critically important but are
+
+more often *consequences* of effective team
+
+leadership rather than *antecedents)*
+
+
+
+
+
+A Little OB Magic
+
+• Keeping your eye on the disciplines
+
+8
+
+**Excerpted from: Baldwin, T., Bommer, W &amp; Rubin R. (2012).** _ **Managing Organizational Behavior: What Great Managers Know &amp; Do** _ **.**
+
+**New York: McGraw-Hill.**
+
+**High-Performing Teams**
+
+**The High-Performance Team Scorecard**
+
+The scorecard for determining whether a team is high performing consists of three dimensions:
+# 1
+
+**Production Output.** The products or outcomes of the team meet or exceed the standards set in that context. For example, a manufacturing team that exceeds its quota would get high ratings.
+
+**Member Satisfaction.** Being part of the team provides people with satisfaction. Members find belonging to the team to be a good experience both professionally and personally.
+
+**Capacity for Continued Cooperation.** The team accomplishes its tasks in a way that will maintain or enhance its ability to work together in the future. That is, effective teams do not exhaust all their resources and goodwill, but get better at working together for the next project and continually strive to learn from mistakes.
+
+A high-performance team, then, is one that produces high-quality work but also has members who derive value from being part of the group and who are able to learn from each project in ways that make them able to cooperate even better in the future. Any team can stumble on to some success. Great teams, however, strive to understand the reasons behind their performance so they are able to consistently repeat that success.
+
+**The Five Disciplines of High-Performing Teams**
+
+One look at the hundreds of books devoted to teams would reveal a bewildering list of characteristics that are allegedly critical to creating high performance. Obviously, every team and context is different and so it is impossible to specifically pinpoint any one ideal team success profile. However, recent research on teams has concluded that, across many different types of teams and contexts, five disciplines consistently emerge as essential to high performance: (1) small size, (2) capable and complementary members, (3) shared purpose and performance objectives, (4) productive norms and working approach, and (5) mutual accountability Other commonly identified disciplines (for example openness and communication) remain important, but none are as critical or as manageable as these five.
+# 2
+
+What stands out about this short list is that none of the five disciplines are provocative, novel, or difficult to understand. But isolating and understanding the essential disciplines have proved to be much easier than actually _applying_ those disciplines to achieve team performance. _Disciplines_ is absolutely the right word because it conveys the importance of consistent application as opposed to just knowing or identifying the characteristics.
+
+Team expert Jon Katzenbach likes to make this point using an analogy from weight-loss efforts. That is, there are only a very few simple, widely known, and accepted behaviors for losing weight based on some essential principles (e.g., eat less, eat more wisely, exercise). However, if you do each of those three things only once, and then check them off your list, you will not lose weight. Only through repeated and disciplined application of all three can you expect to meet significant weight-loss goals. Similarly, it is only through the repeated and disciplined application of the team dimensions that your team will achieve high performance. Simply stated, the research suggests you really have to get high scores on all of the disciplines, and do so consistently, if you want to deliver team performance.
+# 3
+
+**Five Disciplines of High-Performing Teams**
+
+_ **Small Size** _
+
+It is seductive to believe that if two heads are better than one, maybe 15 heads would be better than five. That is, however, not the case. Just as one glass of wine a day is good for your heart but five probably isn&#39;t, there is a point of diminishing returns with respect to team size and performance. Research has shown that, on average, people working in smaller groups work harder, engage in a wider variety of tasks, assume more responsibility for the team&#39;s performance, and feel more involved with the team.
+# 4
+ The larger a team gets, the harder it is for people to meet either in person or virtually, gain shared understanding and commitment, share leadership roles, and so on.
+
+&quot;_ **I believe in the &#39;two pizza&#39; group. If you can&#39;t feed the group with two pizzas, it is too large.&quot;** _
+
+— **Jeff Bezos, CEO, Amazon**
+
+We think Amazon CEO Jeff Bezos&#39;s &quot;two pizza group&quot; is an appropriate guideline.
+# 5
+ High-performing groups are rarely more than 10 people and ideally are between five and eight members. If you have some influence over team size, aim for the smallest number of people who would bring enough complementary skills to accomplish the objectives. Do not be seduced into thinking more is better, and if a natural grouping exceeds 10, break it into smaller subgroups.
+
+_ **Capable and Complementary Members** _
+
+People commonly believe they are good team players and have good team skills because they get along well with others or have always been well liked. However, as noted by former Atari CEO, David Pierce in the opening quote of this chapter, that perception is often inaccurate. The reality is that teamwork is _not_ for everyone, and some people are far better suited to making team contributions than others but their identity is often not obvious. A typical team selection trap is to neglect consideration of specific skills and instead opt for people who are either readily available or seem to have the right functional background.
+
+Of course, every team needs enough functional or technical skills to complete their required tasks. If the team&#39;s job is house construction, then a group of chemists is unlikely to be optimal. However, it is not enough for team members to simply perform their functional area of expertise. The team also needs task management and interpersonal skills, and it is often much more elusive to determine whether potential members have those skills.
+
+Other recent research has shown general cognitive ability and the personality characteristics of conscientiousness and agreeableness to be associated with higher team member ratings and performance outcomes.
+# 6
+ The implication of these findings for team performance is to not take for granted that people have the requisite skills to excel on a team. Look for ways to gather information about potential team members in order to make informed and systematic judgments about selection rather than rely solely on gut feel or demonstrated functional expertise or superficial personality judgments. In other words, most of the chapter 12 can help you select people who are likely to be strong team members and this is not an area where intuition or &quot;get feelings&quot; represent best practices.
+
+In thinking about team composition, it is also important to recognize every successful team needs a mix of skills and talents to deliver its performance objectives. That is, the key is not necessarily to search for people who bring high levels of _all_ skills. Since people more often excel in limited areas, the focus should be on diversifying the team and considering multiple dimensions and potential interactions rather than solely evaluating members on their individual merits. As coaches Brooks and Rockne astutely noted in the nearby margin quotations, just having a group of individual stars is not the key to success. It is _complementary_ members, capable of playing roles and who together bring technical, problem-solving, and interpersonal skills that are the key to team success. A truly great example of this was seen when the Greek national basketball team beat a team of NBA all stars 101-95 in 2006. It is important to note that the Greek team did not have a single NBA player on its roster. &quot;We have to learn the international game better,&quot; U.S. coach Mike Krzyzewski said. &quot;We learned a lot today because we played a team that plays amazing basketball and plays together.&quot;
+
+&quot;_ **We didn&#39;t have the twenty** _ **best** _ **guys. We had the twenty** _ **right** _ **guys.&quot;** _
+
+— **Herb Brooks, Coach of 1980 &quot;Miracle on Ice&quot; U.S. Hockey Team**
+
+Of course, many groups and managers do not have the opportunity to provide input on selecting their team members. But having the right skill sets in the team remains one of the disciplines of high performance—without that, no amount of process excellence will suffice. So it often makes sense to better understand the skill sets that exist in an assigned team and to consider strategies for filling gaps or reducing redundancies. There is also the possibility existing members might learn and grow into the skills the team ultimately needs.
+
+_ **Shared Purpose and Performance Objectives** _
+
+High-performing teams have both a clear understanding of the purpose of the team and a belief that the goal is worth pursuing. The best teams are also able to translate their purpose into a clear understanding of the outcome-based goals to be achieved. Indeed, there is growing consensus among team experts that the single most powerful engine for teams is a clear and compelling performance challenge. Without a clear performance imperative, little else matters. High-performing teams know explicitly what they are expected to accomplish and how they will be measured and evaluated as a team.
+# 7
+
+One of the more straightforward, but curiously neglected, prescriptions is to articulate _outcome_-based, rather than just _activity_-based, goals. This is a point similar to one discussed in our chapter on motivation. **Outcome-based goals** describe the specific outcomes by which success will be determined, while **activity-based goals** describe just the activities. Marriott Hotels, for example, use their Guest Service Index to assess performance of their hotel service employees. FedEx has a similar measure whereby employees evaluate their managers. Outcome-based goals answer the questions: How would we know success? or When would we declare victory? Unless a group comes to terms with their specific goals, the group&#39;s members are destined to struggle and unlikely to ultimately achieve high performance. To be blunt, if you cannot create shared performance objectives, _disband the team_.
+# 8
+
+Just as goals strengthen the motivation of individuals, they can also enhance the motivation in groups. For example, in a study of U.S. Air Force personnel, a group goal-setting and feedback program increased productivity by 75 percent.
+# 9
+ In a study of the Notre Dame University hockey team, specific goals for aggressive behavior led to a 141 percent increase in legal body checking over two years.
+# 10
+ Studies of United Way campaigns have found those communities that set challenging financial goals for their campaigns had better results than those with lower goals.
+# 11
+ Obviously, group goals can have significant effects.
+
+![](RackMultipart20210506-4-2sxeqo_html_42d7c2e12ffa1c61.jpg)
+
+**Productive Norms.**  **Norms** are generally unwritten rules or standards of behavior that apply to team members and can be either prescriptive—dictating what should be done—or proscriptive—dictating behaviors that should be avoided. Norms allow members to predict what others will do, help members gain a common sense of direction, and reinforce a team culture.
+# 12
+ Teams operate with many types of norms (communication, punctuality, level of formality), but among the most critical are those related to effort, meetings, and trust. Examples of productive and unproductive team norms are presented in Table 10.3.
+
+Teams with norms that encourage preparedness and hard work on behalf of the team tend to be more successful in accomplishing their tasks. In a high-performing team, when someone violates a team norm, other members typically respond in ways that attempt to enforce the norm. These responses may include subtle suggestions, direct criticisms, reprimands, or even expulsion from the team. Strong norms create a team culture where members can rigorously, maybe even brutally, challenge each other without taking it personally or getting upset and defensive. Make no mistake, the difference between teams that achieve high performance and teams that don&#39;t is very often the productive norms that are established and enforced.
+
+**Examples of Productive and Unproductive Team Norms**
+
+![](RackMultipart20210506-4-2sxeqo_html_98406c7f12d91e97.jpg)
+
+_ **Mutual Accountability** _
+
+In high-performing teams, members pull their own weight, are rewarded for contributing, and challenged for slacking. Effective teams are characterized by high mutual trust among members and are concerned about the team&#39;s culture. High performance is rarely achieved if there is not a belief members can be trusted and will act in the best interests of others on the team. Effective teams find a way to reward those who contribute, and accountability is determined in part by the team reward structure.
+
+There are two fundamentally different types of team rewards: cooperative and competitive.
+# 13
+**Cooperative team rewards** are distributed equally among team members. That is, the group is rewarded as a group for its successful performance, and each member receives exactly the same reward. This type of reward structure does not recognize individual differences in effort or performance. Cooperative reward systems ignore the possibility that some members make greater contributions to group task performance than others. This type of inequity can de-motivate team members who are high performers.
+
+Under a **competitive team rewards** system, members are rewarded for successful performance as individuals on the team. They receive equitable rewards that vary according to their individual performance. It provides strong incentive for individual effort. It can also pit members against each other.
+
+**Competitive team rewards** differentially reward team members based on their effort or performance. While competitive team rewards may please high performers, they may also undermine the team&#39;s cohesiveness.
+
+Which of these two reward systems is most appropriate depends on the degree of task interdependence. Pairing cooperative rewards with low interdependence will encourage unnecessary cooperation, may stifle individual performance, and may also promote social loafing. A similar mismatch can occur when competitive rewards are coupled with high interdependence. In this case, members desiring to secure a payoff from their own efforts will detract from the collective spirit of the team.
+
+In many team-based organizations, reward structures are constructed so that at least some portion of team members&#39; pay is contingent on the performance of the team as a whole.
+# 14
+ This promotes cooperation and reduces the incentive for competition among members. How rewards are allocated should also be based on how demonstrable (easily observed) the individual contributions are. In the case of a baseball player, for example, it is relatively easy to demonstrate individual performance. However, for a football player, performance is often heavily dependent on how other players performed; thus, cooperative rewards are more appropriate.
+
+Because team performance is more difficult to track and the actions that people take and the results of the team are often blurry, the use of several sources of appraisal (such as peers and customers) makes particular sense with teams. Peer evaluations can allow members to get direct feedback about their performance and help a team enforce performance norms.
+
+In short, the high-performing team challenge can be boiled down to: (1) keep the group small, (2) focus on complementary skill sets, (3) set clear outcome-based goals, (4) enforce productive norms and conflict management, and (5) match rewards to contributions, making at least some portion cooperatively based (see Table 10.4) .
+# 15
+
+It all sounds simple enough. However, we hasten to remind you the battle is maintaining the discipline to _execute_ those simple rules.
+
+**Dysfunctions vs. Disciplines of a High-Performing Team**
+
+The keys to effective teams are not particularly elusive or hard to know – but they have proven to be exceptionally hard _to do_. The table below aligns the most common and insidious team traps or dysfunctions
+# 16
+ with the team discipline and action strategy that can help teams be effective and enjoyable. If your team is working well, you&#39;re probably practicing all of these in some fashion. If your team is experiencing difficulty, check each step as a team, and you&#39;ll most likely figure out what needs to be worked on to bring about success.
+
+**1. Teams get too big.** Keep to an optimal group size (3–10). &quot;If we have too many members, we&#39;ll assign subgroups and choose representatives to be a small coordinating team.&quot;
+
+**2. Casual or convenient team assignments.** Obsess over team membership and aim **to e** nsure complementary skill sets. &quot;We have the technical (functional), problem-solving and interpersonal skills we need. Based on this work, no one is redundant; everyone has unique skills to contribute.&quot;
+
+**3.**  **Inattention to results.** Establish a shared purpose and clear outcome. &quot;Here are _our_ goals and here are _my_ individual roles and outcome goals.&quot; &quot;We will measure our success by. . .&quot;
+
+**4. Absence of commitment and trust.** Establish productive norms and working approach. &quot;We enforce norms regarding effort, meetings, and conflict management. We encourage spirited discussion and confrontation but with personal support. Our meetings are tight and disciplined.&quot;
+
+**5. Unclear or diluted accountability.** Create mutual accountability. &quot;Here&#39;s what we&#39;re accountable for, why we have to do it together, and how we are each rewarded if we succeed.&quot;
+
+[1](#sdendnote1anc) Hackman, J.R. (1990). _Groups that work and those that don&#39;t_. San Francisco, CA: Jossey-Bass.
+
+[2](#sdendnote2anc) Katzenbach, J.R., &amp; Smith, D. (2001). _The discipline of teams_. New York: Wiley. Cohen, S.G., &amp; Bailey, D.E. (1997). What makes teams work: Group effectiveness research from the shop floor to the executive suite. _Journal of Management_, _23,_ 239–290. Guzzo, R.A., &amp; Dickson, M.W. (1996). Teams in organizations: Recent research on performance and effectiveness. _Annual Review of Psychology_, _47,_ 307–338. Campion, M.A., Papper, E.M., &amp; Medsker, G.J. (1996). Relations between work team characteristics and effectiveness: A replication and extension. _Personnel Psychology_, _49,_ 429–452.
+
+[3](#sdendnote3anc) Katzenbach, J.R., &amp; Smith, D. (1993). _The wisdom of teams_. Cambridge, MA: Harvard Business School Press.
+
+[4](#sdendnote4anc) Wicker, A.W., Kermeyer, S.L., Hanson, L., &amp; Alexander, D. (1976). Effects of manning levels on subjective experiences, performance and verbal interaction in groups. _Organizational Behavior and Human Performance_, _17,_ 251–274. McGrath, J.E. (1990). _Groups: Interaction and performance_. Upper Saddle River, NJ: Prentice Hall.
+
+[5](#sdendnote5anc) Deutschman, A. (2004, August). Inside the mind of Jeff Bezos and his plans for Amazon. _Fast Company_, 52–58.
+
+[6](#sdendnote6anc) Neuman, G.A., &amp; Wright, J. (1999). Team effectiveness: Beyond skills and cognitive ability. _Journal of Applied Psychology_, _84,_ 376–389.
+
+[7](#sdendnote7anc) Katzenbach, J.R., &amp; Smith, D. (1993). _The wisdom of teams_. Cambridge, MA: Harvard Business School Press.
+
+[8](#sdendnote8anc) Ibid.
+
+[9](#sdendnote9anc) Pritchard, R.D., Jones, S.D., Roth, P.L., &amp; Stuebing, J., &amp; Ekeberg, S.E. (1988). Effects of group feedback, goal setting and incentives on organizational productivity. _Journal of Applied Psychology_, _73,_ 337–58.
+
+[10](#sdendnote10anc) Anderson, D.C., Crowell, C.R., Doman, M., &amp; Howard, G.S. (1988). Performance posting, goal setting and activity-contingent praise as applied to a college hockey team. _Journal of Applied Psychology_, _73,_ 87–95.
+
+[11](#sdendnote11anc) Zander, A., &amp; Newcomb, T. (1967). Group level of aspiration in United Way Fund campaigns. _Journal of Personality and Social Psychology_, _6,_ 157–162.
+
+[12](#sdendnote12anc) Argote, L. (1989). Agreement about norms and work-unit effectiveness: Evidence from the field. _Basic and Applied Social Psychology_, _10_ (2), 131–140.
+
+[13](#sdendnote13anc) Miller, L.K., &amp; Hamblin, R.L. (1963). Interdependence, differential rewarding, and productivity. _American Sociological Review_, _28,_ 768–778. Wageman, R. (1995). Interdependnece and group effectiveness, _Admin-istrative Science Quarterly_, _40,_ 145–180. Fan, E.T., &amp; Gruenfeld, D.H. (1998). When needs outweigh desires: The effects of resource interdependence and reward interdependence on group problem solving. _Basic and Applied Social Psychology_, _20_ (1) 45–56. Thompson, L.L. (2004). _Making the team: A guide for managers_. Upper Saddle Ridge, NJ: Pearson Prentice Hall.
+
+[14](#sdendnote14anc) Ibid.
+
+[15](#sdendnote15anc) Ibid.
+
+[16](#sdendnote16anc) Lencioni, P. (2002). _The five dysfunctions of a team: A leadership fable._ San Francisco: Jossey-Bass.
+
+10-14
